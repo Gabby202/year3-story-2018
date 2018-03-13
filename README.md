@@ -9,3 +9,4 @@
 [Chapter 3](https://gabby202.github.io/year3-story-2018/chapter3)
 
 
+[Chapter 3 - Alternative Ending](https://gabby202.github.io/year3-story-2018/chapter3_alt)
